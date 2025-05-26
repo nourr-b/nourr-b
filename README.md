@@ -18,6 +18,6 @@
 
 ## 📫 Connect with Me
 
-- LinkedIn: [linkedin.com/in/nourbassem](https://linkedin.com/in/nourbassem)
+- LinkedIn: [linkedin.com/in/nourbassem](https://www.linkedin.com/in/nourrbassem)
 - Email: nbassem306@gmail.com
 
